@@ -6,6 +6,9 @@
 ### This is Elon Musk inciting violence. He’s not hiding it. It’s not subtle.  It’s plain and simple incitement. ###
 https://github.com/user-attachments/assets/89d93408-8d26-4974-b183-65ee95929009
 
+### Elon Musk apologizes and vows to "fix" Grok yet again:
+![G00vTLBXQAAMJNZ](https://github.com/user-attachments/assets/b071313a-2b3a-46d5-817d-7f73804e23da)
+
 ### Mental illness is real.
 
 ![G0wuuTLW4AA_FOw](https://github.com/user-attachments/assets/85cf2118-9088-408b-8257-68c2e9192e45)
