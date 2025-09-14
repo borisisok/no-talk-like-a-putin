@@ -1,10 +1,17 @@
-# YES ELON - YOU WENT TO FAR ###
-### TO FAR AWAY FROM SANE & GOOD ##
+# 🚨 YES ELON - YOU WENT TO FAR 🚨 
+### TO FAR AWAY FROM SANE & GOOD 
 
 ![G0wx3T5XIAA8PdH](https://github.com/user-attachments/assets/c7a00b61-1027-4aa5-bb70-b76eb36d4dc3)
 
 ### This is Elon Musk inciting violence. He’s not hiding it. It’s not subtle.  It’s plain and simple incitement. ###
 https://github.com/user-attachments/assets/89d93408-8d26-4974-b183-65ee95929009
+
+
+
+### 🚨 JUST IN:  Patriot Front marching through Huntington Beach, California chanting “Fight Back! Say His Name! Charlie Kirk - @TheMaineWonk
+
+https://github.com/user-attachments/assets/688b1e96-ce2d-475f-bde9-e1fab3cf8171
+
 
 ### Elon Musk apologizes and vows to "fix" Grok yet again:
 ![G00vTLBXQAAMJNZ](https://github.com/user-attachments/assets/b071313a-2b3a-46d5-817d-7f73804e23da)
