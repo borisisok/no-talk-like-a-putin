@@ -1,4 +1,4 @@
-# 🌐 YES ELON 🌐 TO FAR 🌐 AWAY FROM GOOD 🌐 
+# 🌐 YES ELON 🌐 TO FAR 🌐 FROM GOOD 🌐 
 
 
 ![G0wx3T5XIAA8PdH](https://github.com/user-attachments/assets/c7a00b61-1027-4aa5-bb70-b76eb36d4dc3)
