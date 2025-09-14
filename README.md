@@ -34,6 +34,6 @@ EKELHAFT!  #AfDVerbotSofort
 
 https://github.com/user-attachments/assets/003eebbb-55e8-424c-a660-089d8b8aeff3
 
-Die Nazi-Ideologie präsentiert extreme von Lächerlichkeit und Grausamkeit in einem prakischen Paket.  Danke @Elon
+Die Nazi-Ideologie präsentiert Extreme von Lächerlichkeit und Grausamkeit in einem prakischen Paket.  Danke @Elon
 - LEBEN JA 
 - AFD NEIN
