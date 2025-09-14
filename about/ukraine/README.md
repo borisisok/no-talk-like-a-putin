@@ -1,4 +1,4 @@
-### Hello wounderful person
+### Hello wonderful person
 ## 1
 ![image (8)](https://github.com/user-attachments/assets/0b5ad94f-2d94-4962-8bee-27cc423f8fae)
 ## 2
