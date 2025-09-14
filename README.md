@@ -6,6 +6,7 @@
 ### 🚨 This is Elon Musk inciting violence. He’s not hiding it. It’s not subtle.  It’s plain and simple incitement. ###
 https://github.com/user-attachments/assets/89d93408-8d26-4974-b183-65ee95929009
 
+![G0wKiF2WYAARXec](https://github.com/user-attachments/assets/f30f9ae4-8de7-4b23-a853-c4828f203ca8)
 
 
 ### 🚨 JUST IN:  Patriot Front marching through Huntington Beach, California chanting “Fight Back! Say His Name! Charlie Kirk - @TheMaineWonk
