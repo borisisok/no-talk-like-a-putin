@@ -24,3 +24,13 @@ https://github.com/user-attachments/assets/98d2c089-844a-4ff1-818e-015ce1c6810e
 
 
 
+### Unsere Nazis sind natürlich dabei! Das Verbot rückt näher! 
+100.000 (!) Rechte &  Rechtsextremisten unter der Führung des #Faschist Tommy Robinson sind heute in #London aufmarschiert um gegen Migration zu skandieren
+Mit dabei AfD MdB Petr Bystron!
+Blitzbirne #Musk hat eine wohlwollende Grußbotschaft gestreamt
+EKELHAFT!  #AfDVerbotSofort
+ 
+
+
+https://github.com/user-attachments/assets/003eebbb-55e8-424c-a660-089d8b8aeff3
+
