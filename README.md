@@ -60,8 +60,35 @@ Anne’s diary, smuggled through underground networks, reaches me here, its cour
 
 "The last message that Charlie Kirk gave to me before he joined his creator in heaven was he said that we have to dismantle and take on the radical left organizations in this country that are fomenting violence. That was the last message that he sent me ... we are gonna do that."
 
-### 🚨 Sane people
+## 🚨 Sane people
 
 The scary part of weaponizing religion for politics is this: if you agree, it’s ‘God’s will,’ but if you don’t, it’s treated as heresy. Faith twisted into a tool for power, division, and control isn’t belief anymore, it’s fanaticism.
 
+## 🚨 Jim Stewartson, Antifascist 🇨🇦🇺🇦🏴‍☠️🇺🇸 @jimstewartson 19. März 
+
+### Elon Musk is not just a “Nazi.”
+
+Elon Musk’s psychology is comparable to neo-Nazi mass murderers Anders Breivik, Brenton Tarrant, Patrick Crusius and Dylann Roof. He is a mentally ill, emotionally broken teenage boy committing mass violence in order to make the world safe for white people.
+
+He won’t stop until millions are dead.
+
+This isn’t name-calling, and it’s not theoretical. What he has done with DOGE will kill countless people in countries we were helping with life-saving food and medicine. He didn’t do it to save money, he did it because he hates Black and brown people and he wants them to die, as fast as possible.
+
+Elon Musk wants to destroy the social safety net in America so he can disempower and identify the ethnic groups he wants to imprison, enslave, and ultimately eliminate. He wants to incentivize white births because he’s terrified of being replaced himself, a condition he was born into as a son of apartheid South Africa. He’s fine with dismantling the health care system because the only people who will die from measles, in his mind, deserve it. It’s not just being a memelord, and it’s not just greed, it’s enacting eugenics as national policy.
+
+Elon Musk was taught by his father that he is a special little boy born for greatness — destined to live out the dreams of great Nazi rocket scientists. And then his father abused and abandoned him, and married his half-sister. When Elon was required to go into the military, Errol Musk told his son to leave because he didn’t think Black people could run the government and thought everything would collapse. So, Elon went to Canada and quickly schemed his way into America with his father’s money.
+
+His mother, Maye Musk, is a racist, detached sociopath who encouraged her son’s bullying, narcissism and megalomania and passed down her father’s imperial, technocratic dream of a North American Empire, his vicious racism and antisemitism, and his admiration for Adolf Hitler.
+
+Elon Musk’s white supremacist upbringing, inherited wealth, and reliance on foreign governments and their proxies in America made him the perfect target for radicalization and usurpation. Seeing an opportunity to make his destiny come true, he made the decision in 2022 to “correct the course of civilization” by going into business with Putin and the Saudis to buy Twitter and systematically turn it into a Nazi indoctrination system.
+
+He is committed to the destruction of western liberal democracy because, as a psychopath, he cannot understand empathy, and finds the concepts of human emotion, altruism and charity to be “inefficient” — and contrary to his desires to cleanse the world of those he finds unclean and unworthy. These are quintessential National Socialist “ideals”. 
+
+To obfuscate his genocidal plans, Musk introduced concepts like “effective altruism” and “longtermism” which are how oligarchs say “I’m going to steal everything you own and spend it on things that I want, regardless of what you think or who it hurts.” He obsessively promotes the concept of “suicidal empathy” to rationalize his own raging sadism.
+
+The failure of the press and Silicon Valley to recognize his homicidal worldview has led to civilizational errors like giving a racist foreigner the keys to our space program — after buying into his teenage sci-fi fantasies of Mars that he lifted from Wernher von Braun, Hitler’s premier rocket scientist. It’s all a hoax to recreate humanity in his own deviant image.
+
+Elon Musk is a serial killer who is sitting on the floor of the West Wing with his gaming laptop hacking the US Government to make America more white, patriarchal and violent. He is a global security emergency who will absolutely try to use a nuclear weapon if he has the opportunity and feels that his power is being threatened. Every legal effort must be made to stop him. Right now.
+
+Elon is not just a “Nazi”. As someone who has studied him for years, I promise you, if we let him, he will kill more people than the original did.
 
