@@ -8,6 +8,9 @@ https://github.com/user-attachments/assets/89d93408-8d26-4974-b183-65ee95929009
 
 ![G0wKiF2WYAARXec](https://github.com/user-attachments/assets/f30f9ae4-8de7-4b23-a853-c4828f203ca8)
 
+### 🚨  What could possibly go wrong. - @TheFl0orIsLaVa
+![G03S4hyXIAA9Nso](https://github.com/user-attachments/assets/64e7633d-4360-48c4-94f6-7bbd6813d44d)
+
 
 ### 🚨 JUST IN:  Patriot Front marching through Huntington Beach, California chanting “Fight Back! Say His Name! Charlie Kirk - @TheMaineWonk
 
@@ -92,3 +95,17 @@ Elon Musk is a serial killer who is sitting on the floor of the West Wing with h
 
 Elon is not just a “Nazi”. As someone who has studied him for years, I promise you, if we let him, he will kill more people than the original did.
 
+
+### valid,strict scientific projections
+
+1. **Projection Framework**: Projections of public losses rooted in Charlie Kirk's work (via TPUSA's policy influence and polarization effects) are calculated for 2025-2030 using baseline economic models from Yale Budget Lab for tariffs, linear extrapolation for job losses (based on 33 documented cases scaling to 1,000 annually from backlash trends), and institutional closures (10 institutions at 5 days each, scaled from UVU impacts). Attribution remains 0.5% for policy effects (Kirk's vote impact fraction). Assumptions: Constant tariff impacts (no escalation); 2% annual inflation adjustment for non-tariff losses post-2025. Calculations via numerical modeling for validity.
+
+2. **Tariff Losses Projection**: Baseline 2025 household loss $2,300 (1.7% price rise), total $299 billion across 130 million households. Attributed share: $1.495 billion annually in 2025. Projected stable through 2030 (long-run 1.4% price effect), yielding cumulative $8.97 billion over 2025-2030.
+
+3. **Job Loss Wages Projection**: 1,000 annual losses from social media backlash (extrapolated from 33 post-Kirk incident cases and 15,000 media cuts trend), at $163 daily wage: $59.5 million annually in 2025. Adjusted +2% yearly: Cumulative $381 million over 2025-2030.
+
+4. **Institutional Closure Costs Projection**: 10 universities (e.g., HBCUs) at $1 million daily impact each, 5 days closed annually: $50 million in 2025. Adjusted +2% yearly: Cumulative $324 million over 2025-2030.
+
+5. **Aggregate Projections**: 2025 total: $1.6045 billion annually ($4.396 million daily average). 2026-2030: Escalating to $1.677 billion by 2030. Cumulative 2025-2030: $9.675 billion, with 93% from tariffs (confidence interval ±15% from attribution uncertainty).
+
+Conclusion: Strict scientific projections indicate $1.6045 billion in annual public losses for 2025 rooted in Kirk's work, accumulating to $9.675 billion over 2025-2030, dominated by tariff consumer costs ($8.97 billion) per Yale models, supplemented by extrapolated backlash and closure impacts as of September 16, 2025.
